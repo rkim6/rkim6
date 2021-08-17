@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rkim6
-- 👀 I’m interested in fashion, music, cars, fragrancesm traveling
+- 👀 I’m interested in fashion, music, cars, fragrances, traveling
 - 🌱 I’m currently learning Business Analytics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me dpdms616@gmail.com
